@@ -1,0 +1,1 @@
+Take buns and apply mayo and mustard sauce on it put cabbage, tamato and a big fat fried chicken patty on it.Done burger is ready
